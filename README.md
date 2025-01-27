@@ -12,9 +12,8 @@
 ## 🧐 Processo de Criação
 A ideia para "Anime Bites" surgiu da minha paixão por animes e culinária. Usei o CHATGPT para ajudar a organizar e estruturar as receitas, e também para fornecer dicas e informações sobre como tornar as receitas mais acessíveis. A capa foi criada com o uso de IA, e o processo de diagramação e formatação foi feito com ferramentas de design digital para garantir um visual atraente.
 
-## 🚀 Resultados
-[content://com.google.android.gm.sapi/tawakalituyusuf@gmail.com/message_attachment_external/%23thread-f%3A1822435878598427322/%23msg-f%3A1822435878598427322/0.1?account_type=com.google&attachmentHash=b124d4b3_da669bd0_cca790f9_b691ae74_72b9f1cd&mimeType=multipart%2Frelated&rendition=1](content://media/external/downloads/1000000156)
-
+## 🚀 Resultados)
+<a href="https://editor.reedsy.com/book/rZ_jSxHaTb2xgbJXBN-8Pg/c/Z4Mr1IASc1pw08P_/chapter-1-breakfast-bites">click here to access link</a>
 
 ## 💭 Reflexão (Opcional)
   Criar ANIME BITES foi uma experiência incrível. Além de aprender mais sobre os animes que amo, também descobri novas formas de aplicar tecnologia e criatividade na criação de conteúdo
